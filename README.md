@@ -1,1 +1,1 @@
-No one beyond Forest Future Solutions Pvt Ltd. team can access these files.
+No one beyond Forest Future Solutions Pvt Ltd. team is allowed to access these files.
